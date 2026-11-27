@@ -1,6 +1,6 @@
 <p align="center">𑣲𝄞 ┍━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┑ ഒ·˚</p>
 
-<p align="center"><img width="400" height="400" alt="New_board" src="https://github.com/user-attachments/assets/fa56bd5a-5ef5-41b9-ab9b-4f02802a2dbb" /></p>
+<p align="center"><img width="350" height="350" alt="New_board" src="https://github.com/user-attachments/assets/fa56bd5a-5ef5-41b9-ab9b-4f02802a2dbb" /></p>
 
 <p align="center">𑣲𝄞 ┕━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┙ ഒ·˚</p>
 
