@@ -6,7 +6,7 @@
 
 <p align="center">" тнє ѕтαяѕ αяє тσ тнє вℓα¢к нσℓє, αѕ тнє ωσяℓ∂ѕ αяє тσ тнє νσяα¢ιту. "</p>
 
-<p align="center"> ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙ [ ‪ଘ( ੭⁰̷̴͈ ᵕ ˘͈)੭* ✩ ] ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙</p>
+<p align="center"> ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙ [⠀ ‪ଘ( ੭⁰̷̴͈ ᵕ ˘͈)੭* ✩ ⠀] ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙</p>
 
 ⠀
 <p align="center">ꔫ 𝅄 ◜:ocean:⊹ ʬʬ ｡ᑲꪱⱺ｡ꭑ͟e｡ɕ𝗈ო ៶៸  ࣪ <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/689c64fe-6b5a-43c9-ac41-2aaf4b7a04ad" /> ˖ ⟢</p>
@@ -24,3 +24,34 @@
 <p align="center">☆﹔ ໋✨ *ੈ✩‧₊˚ / 𝚁𝙰𝙽𝙳𝙾𝙼 𝙵𝚁𝙸𝙴𝙽𝙳 𝚁𝙴𝚀𝚂 𝙰𝚁𝙴 𝙸𝙶𝙽𝙾𝚁𝙴𝙳 𝚄𝙽𝙻𝙴𝚂𝚂 𝙼𝙴𝙽𝚃𝙸𝙾𝙽𝙴𝙳 𝙱𝙴𝙵𝙾𝚁𝙴𝙷𝙰𝙽𝙳 <img width="20" height="20" alt="900d9e0c" src="https://github.com/user-attachments/assets/5702ab11-296c-4d0c-8710-cb74400b52d5" /> ഒ·˚</p>
 
 <p align="center"> ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙ [ ‪ଘ( ੭⁰̷̴͈ ᵕ ˘͈)੭* ✩ ] ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙</p>
+
+⠀
+<p align="center">𑣲𝄞 ┍━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┑ ഒ·˚</p>
+
+<p align="center"><img width="613" height="238" alt="Screenshot 2026-11-27 at 4 09 04 PM" src="https://github.com/user-attachments/assets/21c01d79-9b44-4566-8c7a-8c4e05199a06" /></p>
+
+<p align="center">𑣲𝄞 ┕━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┙ ഒ·˚</p>
+
+<p align="center">" σρεɳ ყσµ૨รεℓƒ ƭσ ƭɦε ૨σα૨เɳɠ ɠℓเƭƭε૨เɳɠ รƭα૨ร, เɳ ƭɦε รωเ૨ℓเɳɠ ૨σรყ รƭσ૨ɱ σƒ α ɓყɠσɳε αɠε. "
+
+<p align="center"> ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙ [⠀ ‪ᨳ𐔌՞҂ ˕ ֊՞𐦯ᜊ ⠀] ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙</p>
+
+⠀
+<p align="center">⋆ ⎙ 𝅄  <img width="20" height="20" alt="IMG_6156" src="https://github.com/user-attachments/assets/8d9b3e47-864c-4f8d-aed9-c41eba40990b" /> ⊹ 🄼🄾🅁🄴 ៶៸  ໋𝚰𐓣𝖿ⱺ ’ 𝗌 ⁺ ％ ⭐️﹒</p>
+
+<p align="center">𓄹 ıllı 𓈒   ໋:droplet: ◝ 𝐁𝗒𝗂 ៶៸  𝙾𝙵𝚃𝙴𝙽 𝙱𝚄𝙼𝙼𝙴𝙳 𝙾𝚄𝚃 𝙰𝙱𝙾𝚄𝚃 𝙼𝙸𝙽𝙾𝚁 𝚃𝙷𝙸𝙽𝙶𝚂 ; </p>
+<p align="center">+ . 𝙴𝚇𝙿𝙴𝙲𝚃 𝙳𝚁𝚈 𝚃𝙴𝚇𝚃𝚂 - 𝙸'𝙼 𝚂𝙸𝙼𝙿𝙻𝚈 𝙽𝙾𝚃 𝙸𝙽 𝙰 𝙶𝙾𝙾𝙳 𝙷𝙴𝙰𝙳𝚂𝙿𝙰𝙲𝙴 𑣲𝄞</p>
+
+<p align="center">𓄹 ıllı 𓈒   ໋✨◝ 𝐃𝗇𝗂 ៶៸ 𝙱𝙰𝚂𝙸𝙲 𝙳𝙽𝙸 𝙲𝚁𝙸𝚃𝙴𝚁𝙸𝙰</p>
+
+<p align="center">─   ໋ <img width="26" height="21" alt="IMG_6206" src="https://github.com/user-attachments/assets/3a7958c4-c2f7-4bdf-8684-880c09f02673" />⊹ 𝐃𝗂𝗌𝖼𝗈𝗋𝖽 ⁺ ☆﹔ 𝚟𝚒𝚕𝚜𝚘𝚕𝚞</p>
+
+<p align="center">⁺ 　﹒　 𔓕 ﹒　　⁺ 　﹒ ⋆ 　⊹  ﹒ 　⁺ 　﹒　
+
+<p align="center">𑣲𝄞 ┍━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┑ ഒ·˚</p>
+
+<p align="center">
+ ✦  <a href="https://github.com/RULE-VIOLATION">𝙰𝚁𝙲𝙷𝙸𝚃𝙴𝙲𝚃</a> 𝚆𝙰𝚂 𝙷𝙴𝚁𝙴. 𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙴 𝙶𝙸𝚃𝙷𝚄𝙱 𝚃𝙴𝙴𝙷𝙴𝙴.
+</p>
+
+<p align="center">𑣲𝄞 ┕━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┙ ഒ·˚</p>
