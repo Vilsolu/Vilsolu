@@ -19,7 +19,7 @@
 
 <p align="center">     ⁺ 　﹒　 ☆ ﹒　　⁺ 　﹒ ⋆ 　 ﹒ 　⁺ 　﹒　</p>
 
-<p align="center">     ␥𝅄 <img width="20" height="20" alt="37ffb81e" src="https://github.com/user-attachments/assets/e3946cac-f714-42b8-bbe4-f109de607ad8" />◜ ➶-͙˚ ༘✶ +  ⊹ ៶ 𝚃𝚃𝙶 𝚄𝚂𝙴𝚁 / 𝙾𝙵𝚃𝙴𝙽 𝙽𝙾𝙽-𝚅𝙴𝚁𝙱𝙰𝙻 ៸   ໋:cyclone: ⤸</p>
+<p align="center">     ␥𝅄 <img width="20" height="20" alt="37ffb81e" src="https://github.com/user-attachments/assets/e3946cac-f714-42b8-bbe4-f109de607ad8" />◜ ➶-͙˚ ༘✶ +  ⊹ ៶ 𝚃𝚃𝙶 𝚄𝚂𝙴𝚁 / 𝙾𝙵𝚃𝙴𝙽 𝙽𝙾𝙽-𝚅𝙴𝚁𝙱𝙰𝙻 ៸   ໋I :droplet: ⤸</p>
 
 <p align="center">☆﹔ ໋✨ *ੈ✩‧₊˚ / 𝚁𝙰𝙽𝙳𝙾𝙼 𝙵𝚁𝙸𝙴𝙽𝙳 𝚁𝙴𝚀𝚂 𝙰𝚁𝙴 𝙸𝙶𝙽𝙾𝚁𝙴𝙳 𝚄𝙽𝙻𝙴𝚂𝚂 𝙼𝙴𝙽𝚃𝙸𝙾𝙽𝙴𝙳 𝙱𝙴𝙵𝙾𝚁𝙴𝙷𝙰𝙽𝙳 <img width="20" height="20" alt="900d9e0c" src="https://github.com/user-attachments/assets/5702ab11-296c-4d0c-8710-cb74400b52d5" /> ഒ·˚</p>
 
