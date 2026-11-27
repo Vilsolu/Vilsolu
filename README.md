@@ -51,7 +51,7 @@
 <p align="center">𑣲𝄞 ┍━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┑ ഒ·˚</p>
 
 <p align="center">
- ✦  <a href="https://github.com/RULE-VIOLATION">𝙰𝚁𝙲𝙷𝙸𝚃𝙴𝙲𝚃</a> 𝚆𝙰𝚂 𝙷𝙴𝚁𝙴. 𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙴 𝙶𝙸𝚃𝙷𝚄𝙱 𝚃𝙴𝙴𝙷𝙴𝙴.
+ ✦  <a href="https://github.com/TOTAL-EXTERMINATION">𝙰𝚁𝙲𝙷𝙸𝚃𝙴𝙲𝚃</a> 𝚆𝙰𝚂 𝙷𝙴𝚁𝙴. 𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙴 𝙶𝙸𝚃𝙷𝚄𝙱 𝚃𝙴𝙴𝙷𝙴𝙴.
 </p>
 
 <p align="center">𑣲𝄞 ┕━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┙ ഒ·˚</p>
