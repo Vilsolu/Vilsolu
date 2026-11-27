@@ -39,7 +39,7 @@
 ⠀
 <p align="center">⋆ ⎙ 𝅄  <img width="20" height="20" alt="IMG_6156" src="https://github.com/user-attachments/assets/8d9b3e47-864c-4f8d-aed9-c41eba40990b" /> ⊹ 🄼🄾🅁🄴 ៶៸  ໋𝚰𐓣𝖿ⱺ ’ 𝗌 ⁺ ％ ⭐️﹒</p>
 
-<p align="center">𓄹 ıllı 𓈒   ໋:droplet: ◝ 𝐁𝗒𝗂 ៶៸  𝙾𝙵𝚃𝙴𝙽 𝙱𝚄𝙼𝙼𝙴𝙳 𝙾𝚄𝚃 𝙰𝙱𝙾𝚄𝚃 𝙼𝙸𝙽𝙾𝚁 𝚃𝙷𝙸𝙽𝙶𝚂 ; </p>
+<p align="center">𓄹 ıllı 𓈒   ໋ :droplet: ◝ 𝐁𝗒𝗂 ៶៸  𝙾𝙵𝚃𝙴𝙽 𝙱𝚄𝙼𝙼𝙴𝙳 𝙾𝚄𝚃 𝙰𝙱𝙾𝚄𝚃 𝙼𝙸𝙽𝙾𝚁 𝚃𝙷𝙸𝙽𝙶𝚂 ; </p>
 <p align="center">+ . 𝙴𝚇𝙿𝙴𝙲𝚃 𝙳𝚁𝚈 𝚃𝙴𝚇𝚃𝚂 - 𝙸'𝙼 𝚂𝙸𝙼𝙿𝙻𝚈 𝙽𝙾𝚃 𝙸𝙽 𝙰 𝙶𝙾𝙾𝙳 𝙷𝙴𝙰𝙳𝚂𝙿𝙰𝙲𝙴 𑣲𝄞</p>
 
 <p align="center">𓄹 ıllı 𓈒   ໋✨◝ 𝐃𝗇𝗂 ៶៸ 𝙱𝙰𝚂𝙸𝙲 𝙳𝙽𝙸 𝙲𝚁𝙸𝚃𝙴𝚁𝙸𝙰</p>
