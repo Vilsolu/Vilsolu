@@ -51,7 +51,7 @@
 <p align="center">𑣲𝄞 ┍━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┑ ഒ·˚</p>
 
 <p align="center">
- ✦  <a href="https://github.com/TOTAL-EXTERMINATION">𝙰𝚁𝙲𝙷𝙸𝚃𝙴𝙲𝚃</a> 𝚆𝙰𝚂 𝙷𝙴𝚁𝙴. 𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙴 𝙶𝙸𝚃𝙷𝚄𝙱 𝚃𝙴𝙴𝙷𝙴𝙴.
+ ✦ <img width="20" height="20" alt="IMG_4341" src="https://github.com/user-attachments/assets/0cb71a96-a780-4982-8802-a47e556e759f" /> <a href="https://github.com/TOTAL-EXTERMINATION">𝙰𝚁𝙲𝙷𝙸𝚃𝙴𝙲𝚃</a> 𝚆𝙰𝚂 𝙷𝙴𝚁𝙴. 𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙴 𝙶𝙸𝚃𝙷𝚄𝙱 𝚃𝙴𝙴𝙷𝙴𝙴.
 </p>
 
 <p align="center">𑣲𝄞 ┕━━━━━ ☽【 ✧  ★  ✧ 】☾ ━━━━━┙ ഒ·˚</p>
