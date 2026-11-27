@@ -45,10 +45,11 @@
 
 <p align="center">𓄹 ıllı 𓈒   ໋✨◝ 𝐃𝗇𝗂 ៶៸ 𝙱𝙰𝚂𝙸𝙲 𝙳𝙽𝙸 𝙲𝚁𝙸𝚃𝙴𝚁𝙸𝙰</p>
 
-<p align="center">─   ໋ <img width="20" height="20" alt="moon10" src="https://github.com/user-attachments/assets/9ad0db82-cbe5-41cf-8f2c-f173393e246a" />
-⊹ 𝐒𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾 / 𝗅𝗂𝗌𝗍 𝗈𝖿 𝗌𝗄𝗂𝗇𝗌 ⁺ ☆﹔𝙽/𝙰 (𝚜𝚘𝚘𝚗)</p>
+<p align="center">─   ໋ <img width="20" height="20" alt="moon10" src="https://github.com/user-attachments/assets/9ad0db82-cbe5-41cf-8f2c-f173393e246a" /> ⊹ 𝐒𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾 ⁺ ☆﹔𝙻𝚘𝚘𝚔 𝚕𝚎𝚏𝚝!</p>
 
-<p align="center">─   ໋ <img width="26" height="21" alt="IMG_6206" src="https://github.com/user-attachments/assets/3a7958c4-c2f7-4bdf-8684-880c09f02673" />⊹ 𝐃𝗂𝗌𝖼𝗈𝗋𝖽 ⁺ ☆﹔ 𝚟𝚒𝚕𝚜𝚘𝚕𝚞</p>
+<p align="center">─   ໋ :bubbles:⊹ 𝐋𝗂𝗌𝗍 𝗈𝖿 𝗌𝗄𝗂𝗇𝗌 (𝖺𝗅𝗌𝗈 𝗂𝗇 ⤴︎) ⁺ ☆﹔𝙽/𝙰 (𝚜𝚘𝚘𝚗)</p>
+
+<p align="center">─   ໋ <img width="26" height="21" alt="IMG_6206" src="https://github.com/user-attachments/assets/3a7958c4-c2f7-4bdf-8684-880c09f02673" /> ⊹ 𝐃𝗂𝗌𝖼𝗈𝗋𝖽 ⁺ ☆﹔ 𝚟𝚒𝚕𝚜𝚘𝚕𝚞</p>
 
 <p align="center">⁺ 　﹒　 𔓕 ﹒　　⁺ 　﹒ ⋆ 　⊹  ﹒ 　⁺ 　﹒　
 
