@@ -9,7 +9,7 @@
 <p align="center"> ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙ [⠀ ‪ଘ( ੭⁰̷̴͈ ᵕ ˘͈)੭* ✩ ⠀] ·̩̩̥͙＊*•̩̩͙✩•̩̩͙*˚˚*•̩̩͙✩•̩̩͙*˚＊·̩̩̥͙</p>
 
 ⠀
-<p align="center">ꔫ 𝅄 ◜:ocean:⊹ ʬʬ ｡ᑲꪱⱺ｡ꭑ͟e｡ɕ𝗈ო ៶៸  ࣪ <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/689c64fe-6b5a-43c9-ac41-2aaf4b7a04ad" /> ˖ ⟢</p>
+<p align="center">ꔫ 𝅄 ◜ :ocean:⊹ ʬʬ ｡ᑲꪱⱺ｡ꭑ͟e｡ɕ𝗈ო ៶៸  ࣪ <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/689c64fe-6b5a-43c9-ac41-2aaf4b7a04ad" /> ˖ ⟢</p>
 
 <p align="center">          ࣪ ˖     ⊹  :bubbles:  ⁺    𝅄   :jellyfish:     ໋  :crescent_moon:   𔓕 ⊹</p>
 
