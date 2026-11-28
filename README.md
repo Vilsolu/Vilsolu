@@ -48,7 +48,7 @@
 
 <p align="center">─   ໋ <img width="20" height="20" alt="moon10" src="https://github.com/user-attachments/assets/9ad0db82-cbe5-41cf-8f2c-f173393e246a" /> ⊹ Strawpage ⁺ ☆﹔𝙻𝚘𝚘𝚔 𝙻𝚎𝚏𝚝!</p>
 
-<p align="center">─   ໋ :bubbles:⊹ List of skins (also in ⤴︎) ⁺ ☆﹔𝙽/𝙰 (𝚜𝚘𝚘𝚗)</p>
+<p align="center">─   ໋ :bubbles:⊹ List of skins (also in strawpage ⤴︎) ⁺ ☆﹔𝙽/𝙰 (𝚜𝚘𝚘𝚗)</p>
 
 <p align="center">─   ໋ <img width="26" height="21" alt="IMG_6206" src="https://github.com/user-attachments/assets/3a7958c4-c2f7-4bdf-8684-880c09f02673" /> ⊹ Discord ⁺ ☆﹔ 𝚟𝚒𝚕𝚜𝚘𝚕𝚞</p>
 
