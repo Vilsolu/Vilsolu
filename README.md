@@ -40,11 +40,11 @@
 ⠀
 <p align="center">⋆ ⎙ 𝅄  <img width="20" height="20" alt="IMG_6156" src="https://github.com/user-attachments/assets/8d9b3e47-864c-4f8d-aed9-c41eba40990b" /> ⊹ EXTRA ៶៸ ’ ⁺ ％ ⭐️﹒</p>
 
-**<p align="center">𓄹 ıllı 𓈒   ໋ :droplet: ◝ ＢＹＩ ៶៸ EXPECT SLOW RESPONSES</p>**
+**<p align="center">𓄹 ıllı 𓈒   ໋ :droplet: ◝ 𝖡efore interacting ៶៸ EXPECT SLOW RESPONSES</p>**
 
 <p align="center">+ . Sometimes bummed out about minor stuff ; Simply not in a good mood / headspace -𑣲𝄞</p>
 
-**<p align="center">𓄹 ıllı 𓈒   ໋✨◝ 𝙳𝙽𝙸 ៶៸ Basic criteria for now, will list specifics in the future</p>**
+**<p align="center">𓄹 ıllı 𓈒   ໋✨◝ ＤＮＩ ៶៸ Basic criteria for now, will list specifics in the future</p>**
 
 <p align="center">─   ໋ <img width="20" height="20" alt="moon10" src="https://github.com/user-attachments/assets/9ad0db82-cbe5-41cf-8f2c-f173393e246a" /> ⊹ Strawpage ⁺ ☆﹔𝙻𝚘𝚘𝚔 𝙻𝚎𝚏𝚝!</p>
 
